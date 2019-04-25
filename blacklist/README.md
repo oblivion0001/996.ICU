@@ -180,3 +180,4 @@
 |深圳|[紫优科技](https://www.zhipin.com/gongsir/7610a4892e11cc781XZ_09i1FA~~.html?ka=company-jobs)|2019年4月|9116| [公司老板发的招聘信息](img/深圳紫优科技.jpg)|
 |上海/西安|[华勤通讯技术有限公司](http://www.huaqin.com/)|2019年4月|996| [看准网](https://www.kanzhun.com/gso238619.html?ka=com1-title) [知乎](https://www.zhihu.com/question/49628909/answer/522467068)|
 |北京|[小猪短租](http://www.xiaozhu.com/)|-----|997|4.22-5.10连续上班,晚上默认加班,不加班领导会找谈话。[工作截图](img/小猪短租.jpg)|
+|青岛|[唯美淘](https://app.weimeitao.net/)|-----|997|3.01-5.12号 将会一直连续上班,然后还绩效因为很多原因扣除,。[工作截图](img/小猪短租.jpg)|
